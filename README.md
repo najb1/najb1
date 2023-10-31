@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @najb1
+- 👀 I’m interested in learning new things
+- 💞️ I’m looking to collaborate on new projects
